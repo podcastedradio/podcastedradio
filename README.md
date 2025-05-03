@@ -6,7 +6,7 @@
   <img src="https://64.media.tumblr.com/7da6a36b857fad58b3499e6a67508363/e359ac73cec0acbd-a3/s640x960/264d57912cd14db939236bd2b4977c2b1277186d.pnj">
 </div>
 
-<h3 align="center">νιηη/νιηηу/νιη¢єηт/νιη¢є</h3>
+<h3 align="center">νιηη/νιηηу/νιη¢єηт/νιη¢є.ᐟ</h3>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/392d0b0528ba86248c004278b4b9fd41/f62b77454022362b-97/s1280x1920/1d967d662d37a826bc935ab6730a93f40672cdec.pnj">

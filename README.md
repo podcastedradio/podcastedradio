@@ -3,7 +3,7 @@
 </div>
 
 <div align="center">
-  <img src="https://64.media.tumblr.com/764babfd17bfb94460e9e1af569c6396/b8b74b7b807ee5b8-eb/s400x600/63d6a75d69a94a26510c66b6559a20fbe2b15140.pnj">
+  <img src="https://64.media.tumblr.com/7da6a36b857fad58b3499e6a67508363/e359ac73cec0acbd-a3/s640x960/264d57912cd14db939236bd2b4977c2b1277186d.pnj">
 </div>
 
 <h3 align="center">name</h3>

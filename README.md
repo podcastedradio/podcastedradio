@@ -6,7 +6,7 @@
   <img src="https://64.media.tumblr.com/7da6a36b857fad58b3499e6a67508363/e359ac73cec0acbd-a3/s640x960/264d57912cd14db939236bd2b4977c2b1277186d.pnj">
 </div>
 
-<h3 align="center">name</h3>
+<h3 align="center">νιηη/νιηηу/νιη¢єηт/νιη¢є</h3>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/392d0b0528ba86248c004278b4b9fd41/f62b77454022362b-97/s1280x1920/1d967d662d37a826bc935ab6730a93f40672cdec.pnj">
@@ -16,9 +16,9 @@
   <img src="https://64.media.tumblr.com/f34ef860ee3c16f193e301c3574ef519/215cf8b0e7f43249-8f/s400x600/2febf294bc87a5e3e2d19dcbf1705981eee4b7db.webp">
 </div>
 
-<p align="center">work in progress</p>
-<p align="center">work in progress</p>
-<p align="center">work in progress</p>
+<p align="center">нє/нιм ⭒ ƒιƒтєєη ⭒ єαѕιℓу σνєяωнєℓмє∂ ⭒ υѕυαℓℓу ιη ¢σѕρℓαу ⭒ νιη¢єηт ιѕ мє ⭒ ƒαωη, αηgєℓ, ωєη∂ιgσ ℓσνєя ⭒ <3</p>
+<p align="center">‘’ вυт ιη тнє σƒƒ ¢нαη¢є α яєѕρє¢тαвℓє ¢υѕтσмєя ℓσѕєѕ тнєιя ραтιєη¢є αη∂ ℓєανєѕ, тнєу ℓιкєℓу ωση’т вє ℓєανιηg αηу тιρѕ αη∂ ωση’т вє ραуιηg ƒσя αηу ƒυятнєя мєαℓѕ. ιт’ѕ ιη уσυя вєѕт ιηтєяєѕт ησт тσ ℓєт тнαт нαρρєη.  вυт тнαт ∂ι∂ ℓєανє уσυ ωιтн α ∂єα∂ ρℓαтє.’’</p>
+<p align="center">‘’ ѕтαу συт σƒ му σƒƒι¢є, яσ∂у. ‘’</p>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/f34ef860ee3c16f193e301c3574ef519/215cf8b0e7f43249-8f/s400x600/2febf294bc87a5e3e2d19dcbf1705981eee4b7db.webp">
